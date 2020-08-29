@@ -4,3 +4,4 @@ para poder hacer el assignement 2
 me encantan los dulces y el chocolate mmm subidita de peso siii pero solo es por epocas
 donde consigo emoticones ??
 I live cafe::pizza::caminar
+adoro mi vcafe::pizza me encanta ,hacer actividad fisica
