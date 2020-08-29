@@ -8,3 +8,5 @@ adoro mi vcafe::pizza me encanta ,hacer actividad fisica
 practica de emoticones los :: van antes o despues?? lo averiguo ahora
 cafe::pizza::flores:::
 ::coffe
+tampoco logro emoticon si escrbo cafe en ingles....que frustracion
+pizza lo consegui porque esta en italiano y asi lo escribimos tods
