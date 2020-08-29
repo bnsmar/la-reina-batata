@@ -7,3 +7,4 @@ I live cafe::pizza::caminar
 adoro mi vcafe::pizza me encanta ,hacer actividad fisica
 practica de emoticones los :: van antes o despues?? lo averiguo ahora
 cafe::pizza::flores:::
+::coffe
